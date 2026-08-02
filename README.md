@@ -58,7 +58,7 @@ marketing site.
 
 ## Copyright
 
-Copyright © 2026 Somangshu Das. All rights reserved.
+Copyright © 2026 Magnesco Electrical Stamping Pvt. Ltd. All Rights Reserved.
 
 Brand names, logos, and company information for Magnesco Electrical
 Stamping Pvt. Ltd. displayed on this site belong to their respective owner
